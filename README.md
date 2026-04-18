@@ -52,8 +52,7 @@ Universal Calculator is designed to exceed the requirements of global privacy re
 For formal inquiries regarding this policy or technical aspects of Karagato Studios software:
 
 **Karagato Studios** 🐱  
-📧 **Email:** support@karagatostudios.com  
-🌐 **Web:** [karagatostudios.com](https://karagatostudios.com)  
+📧 **Email:** karagatostudios@gmail.com 
 
 ---
 © 2026 **Karagato Studios** - All Rights Reserved  
